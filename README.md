@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Bharath and I'm studying Computer Science Engineering 
+I'm Bharath and I'm Currently pursuing B.E. Computer Science Engineering at University College of Engineering, Nagercoil
 
 
 ## 🌐 Socials:
